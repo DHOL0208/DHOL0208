@@ -6,6 +6,6 @@
 - 🤔 I'm looking for help with humanities
 - 💬 ask me about IT
 - 📫 How to contact me: WhatsApp (19) 99614-6662
-- 😄 Pronouns: Her
+- 😄 Pronouns: her
 - ⚡ Fun fact: None
 
